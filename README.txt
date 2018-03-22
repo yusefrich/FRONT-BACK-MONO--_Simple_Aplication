@@ -6,4 +6,4 @@ for more art and tese from my future games please:
 visit my instagram: @yusef_rich
 visit my twitter: @yusef_rick
 
-tank you!
+thank you!
